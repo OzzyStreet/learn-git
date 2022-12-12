@@ -2,4 +2,5 @@
 - Aviad Rozenhek
 - Don Juan 
 - Aviad ha-melech
-- Ilan
+- Luck Skywalker
+- Yes, He is the king! (Not the son of shlomo or david, still the king)
