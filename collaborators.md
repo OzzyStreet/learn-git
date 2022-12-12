@@ -1,4 +1,4 @@
 - Linus Torvalds
 - Aviad Rozenhek
-- Don Juan De Marco
-
+- Don Juan 
+- Aviad ha-melech
